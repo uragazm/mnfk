@@ -1,0 +1,1 @@
+www.manukatūra.lt schema
